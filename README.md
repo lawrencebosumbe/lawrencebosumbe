@@ -1,5 +1,5 @@
 Lawrence E Bosumbe
-- 📫 lawrencebosumbe@gmail.com | +27820693801
+- 📫 le.bosumbe@gmail.com | +27812968846
 
 <!---
 lawrencebosumbe/lawrencebosumbe is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
